@@ -1,0 +1,1 @@
+# painel-interativo-Hardwares-gamer-
